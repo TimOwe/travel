@@ -11,7 +11,7 @@
 - Kossar's nearby is also a good option for a fresh out of the oven bagel
 ## Pizza
 - Everyone has their own hot take;
-- Scarrs, Mama's Too, Williamsburg pizza all do great slices
+- Scarrs, Mama's Too, Williamsburg pizza, Hots - all do great slices
 
 ## Queens
 - [New world mall, Flushing](https://maps.app.goo.gl/hgDjyZSZyFhBUet59) - great food court, flushing is the chinatown outside of chinatown, generally better food and cheaper than manhattan chinatown but can be a bit of a trek
@@ -30,7 +30,7 @@
 - Okiboru house of tsukemen - my favourite tsukemen outside of Japan - They also have an udon location
 - Williamsburg pizza - obviously also in brooklyn but there's an LES location - great pizza
 - Ceres - Extremely overpriced but great pizza. they're huge and only do whole pies
-- Katz's - Long debated whether this is a tourist trap or not but fact of the matter is yes the pastrami reuben is overpriced but it's also huge and delicious
+- Katz's - Long debated whether this is a tourist trap or not but fact of the matter is yes the pastrami reuben is overpriced but it's also huge and delicious. Open all the time, go for an early lunch around 11am and you should be able to walk in and skip the tour buses full of people
 - Mama's Too Pizzeria
 - L'Industrie - pizza
 - TabeTomo - Ramen
